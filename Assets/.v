@@ -1,1 +1,0 @@
--- HOLDER FOR ASSETS
